@@ -1,1 +1,0 @@
-# galaeos-campaign-setting
